@@ -11,6 +11,8 @@
 
 -   Fun fact **No Sleep**
 
+- 📫 Wakatime: **https://wakatime.com/@Hanafen**
+
 <h3><img width="30" height="30" src="https://www.freepnglogos.com/uploads/discord-logo-png/discord-logo-logodownload-download-logotipos-1.png" alt="Discord Logo"> 
   Discord Presence</h3>
 
