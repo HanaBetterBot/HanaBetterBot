@@ -1,13 +1,13 @@
-<h1 align="center">Hi,I'm Hana</h1>
+<h1 align="center">😪 Hi,I'm Hana</h1>
 <h3 align="center">A Moderator Server and the Code Enjoyer</h3>
 
 
 
--   I’m currently working in **Discord server as Moderator**
+-   👉 I’m currently working in **Discord server as Moderator**
 
--  How to contact me **hanakofen@gmail.com**
+-  😀 How to contact me **hanakofen@gmail.com**
 
--  I’m currently learning **Playing Games**
+-  😒 I’m currently learning **Playing Games**
 
 - 📫 Wakatime: **https://wakatime.com/@Hanafen**
 
